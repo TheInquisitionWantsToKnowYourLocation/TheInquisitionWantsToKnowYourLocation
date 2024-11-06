@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @TheInquisitionWantsToKnowYourLocation
+- 👋 Hi, @TheInquisitionWantsToKnowYourLocation
 - 👀 I’m interested in extinguishing heretical influence
 - 🌱 I’m currently learning your heretical history
-- 💞️ I’m looking to collaborate on the destruction of the enemies of Impierium of Man
+- 💞️ I’m looking to collaborate on the destruction of the enemies of the Impierium of Man
 - 📫 How to reach me: I will know
 - 😄 Pronouns: Member of the Inquisition
 - ⚡ Fun fact: You cannot escape the Inquisition
